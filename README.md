@@ -2,7 +2,7 @@
 
 Olá, jovem chefe! bem vindo ao meu livro de receitas!
 
-Faça muito bom proveito, e não se esqueça de nos marcar quando reproduzir a receita, isso nos ajuda a crescer e melhorar cada mais nosso desempenho com novas receitas! Um beijo e até mais. :kissing_heart:
+Estou muito Feliz em saber que você se interessou por nossas receitas, saiba que ela foi feita com muito amor e dedicação! Obrigadoo até a proxima. :kissing_heart:
 
 - Bolo de laranja; :orange:
 - 
